@@ -1,1 +1,1 @@
-# ASD preparat is
+# ACDC preparat is
